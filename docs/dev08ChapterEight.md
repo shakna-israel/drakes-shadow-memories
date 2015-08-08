@@ -42,7 +42,15 @@ She paused and then smiled, "Sure."
 
 *** 
 
-Quinn complains that Suzie is insane as they enter the apartment block. 
+"Insane. Utterly insane."
+
+Suzie glared at Quinn, "What, a hacker group having a meetup in Melbourne?"
+
+"Two intelligence agents walking into a terrorist camp. We're supposed to be intelligent." Quinn said harshly, but she just shrugged, "You want answers, don't you?"
+
+The destination was an apartment block, in the heart of suburbia.
+
+#
 
 A guard places guns at the back of their heads, and Styles and Suzie disable the man and take the guns in sync. 
 
