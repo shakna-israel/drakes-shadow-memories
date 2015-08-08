@@ -1,4 +1,4 @@
-![Drakes: Shadow Memories](frontCover.jpg)
+![Drakes: Shadow Memories](cover.png)
 
 ## Read Online
 
