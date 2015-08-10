@@ -1,5 +1,20 @@
 # Chapter Five
 
+~~~
+
+How many must die,
+how many must fall,
+till her will is broken?
+
+A boy, more man,
+with heart of lion,
+and mind of angel,
+slaughtered in his workplace.
+
+- Rising, anon.
+
+~~~
+
 Walking into the room was a nightmare. 
 
 It was every waking dream, every fear brought to life, every trigger for every traumatic memory. 
