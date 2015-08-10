@@ -1,8 +1,6 @@
-First person from Susan Drakes, told as narrative. 
-
 Based 6 months after Heroes and Villains. 
 
-Prologue 
+# Prologue 
 
 A hacker broadcasts a message to the entire world, on every publicly accessible screen. 
 
@@ -10,7 +8,7 @@ Says that, 'for the good of all, living, dead and corrupted' he will shut down t
 
 To demonstrate that he can, there is a 12 minute internet outage across the globe. 
 
-Chapter One 
+# Chapter One 
 
 Female chef in a bar hears one of her staff being berated and walks into the main lobby, and excuses the waiter. She speaks with the customer, and then tears him apart, analysing him piece by piece, making him burst into tears. 
 
@@ -46,7 +44,7 @@ When interviewer starts getting angry claims she knows how hacker managed to sei
 
 Interviewer stops and stares, and Suzie smiles sweetly, "But, I'm only going to talk to Anna Doherty. Now... Fuck off." 
 
-Chapter Two 
+# Chapter Two 
 
 A depressed woman wearing a pink hoodie and track suit pants enters the containment room, waking Suzie up as she slams the door. 
 
@@ -98,7 +96,7 @@ Laughs and says that a fight was inevitable, but she'll do her best.
 
 *** 
 
-Chapter Three 
+# Chapter Three 
 
 Suzie is given her own office space, and rambles to herself as she tries to trace the hacker or find out who imhe is from the code and a repository created by several McIntyre employees. 
 
@@ -138,7 +136,7 @@ Drags him back into elevator and waits for the all clear.
 
 *** 
 
-Chapter Four 
+# Chapter Four 
 
 Quinn and Drakes interrogate gunner, discover he was paid via credit card, 1.8 million dollars to assassinate Drakes. 
 
@@ -182,7 +180,7 @@ Suzie tears him apart, and breaks his wrist when he tries to punch her.
 
 She smiles, "I've been out of the game for years. I can still kick your ass." 
 
-Chapter Five 
+# Chapter Five 
 
 Suzie meets McIntyre, and is filled with hatred and love. Remembers working with him. Laughter. Remembers stopping him. 
 
@@ -222,7 +220,7 @@ Quinn disables both with a taser and the metalwork.
 
 Suzie passes out. 
 
-Chapter Six 
+# Chapter Six 
 
 Suzie wakes up in prison hospital, Quinn on the phone next to her. 
 
@@ -296,7 +294,7 @@ Quinn is taken into custody for questioning.
 
 *** 
 
-Chapter Seven 
+# Chapter Seven 
 
 ASIO Agent interrogates Suzie, eventually resorting to torture. 
 
@@ -332,7 +330,7 @@ Calls him.
 
 *** 
 
-Chapter Eight 
+# Chapter Eight 
 
 Styles is unsurprised that Suzie is calling. 
 
@@ -404,7 +402,7 @@ Suzie kills half a dozen people in the room and shoots Styles in both legs, yell
 
 *** 
 
-Chapter Nine 
+# Chapter Nine 
 
 *** 
 
@@ -508,7 +506,7 @@ Suzie playing with Arlia.
 
 *** 
 
-Chapter Ten 
+# Chapter Ten 
 
 *** 
 
@@ -574,7 +572,7 @@ Suzie manages to reverse the process to Arlia.
 
 *** 
 
-Chapter Eleven 
+# Chapter Eleven 
 
 *** 
 
@@ -654,6 +652,6 @@ Suzie shrugs, "Phones aren't that secure. Even if you parse it through Tor."
 
 *** 
 
-Chapter Twelve 
+# Chapter Twelve 
 
 *** 
