@@ -1,5 +1,14 @@
 # Chapter Two
 
+~~~
+
+Though her family has been taken,
+she shall rise again.
+
+- Rising, anon.
+
+~~~
+
 Suzie's eyes widened and she grabbed her head, "Shit." 
 
 She glanced up at the door that had slammed and the woman leaning on it, and she winced. 
