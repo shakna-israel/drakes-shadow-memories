@@ -231,3 +231,10 @@ Quinn cocked his head, "A few what?"
 
 ---
 
+Suzie smiled proudly as Arlia pushed a train down the wooden track, "Choo choo!"
+
+Arlia paused and turned the turntable, "Look mummy!"
+
+She smiled, trying to hide the tears, "I can see, Arlia. Well done."
+
+The train went on its merry way down the haphazord track that would make more sense in a Mersenne Twister.
