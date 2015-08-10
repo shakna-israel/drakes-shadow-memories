@@ -1,5 +1,20 @@
 # Chapter Seven
 
+~~~
+
+How many must die,
+how many must fall,
+till her will is broken?
+
+Lover,
+husband,
+father of her child,
+taken apart by hatred without limits.
+
+- Rising, anon.
+
+~~~
+
 Magnetic clamps, another interrogation room. 
 
 Once again, she was on the wrong side of it. 
