@@ -184,3 +184,50 @@ Arlia frowned, "Bad men not so bad, mummy."
 Suzie looked at her daughter sadly, "But?"
 
 "Bad men still bad." The toddler growled, and she felt relief flow through her, holding her tight, "That's right, baby girl."
+
+---
+
+Suzie paused outside her house, looking at the single man waiting for her.
+
+She put Arlia down gently, "Go inside with Nassu, okay?"
+
+Arlia grabbed tight, "No. No. No. I want you!"
+
+Suzie brushed her blonde her gently, "No one's going to take me away, Arlia. You're safe with Nassu, and I will be inside soon. I'm not going anywhere."
+
+Arlia crossed her arms, "Promise."
+
+"I promise." She said with a smile, and a nearby Nassu-bot held out a hand. The toddler clutched it and tried to walk whilst looking back.
+
+Suzie glared at Quinn as she walked up, the rest going inside, "What the hell do you want?"
+
+"You got your daughter back."
+
+Suzie sneered, "Surprised?"
+
+"Nope." Quinn shook his head, "But she's a bit developed isn't she? For a one year old?"
+
+"Runs in the family." Suzie shrugged it off.
+
+Quinn sighed heavily, "The USB you found on Styles contained the virus system they used to take the internet offline. We've developed something to counteract it."
+
+"Cool. Not my problem." Suzie growled.
+
+Quinn winced, "Actually... It is. The Homegrown Front are still an issue. The UHF weren't lying about them. They are out there, and they are dangerous. In light of that, the Five Eyes are... Re-grouping. Reunited as any informal group ever is. They're willing to pardon you, and all your crimes, if you aid us in removing the threat."
+
+"If anyone in the Five Eyes has any sense, they will leave me and my family alone, forever." Suzie growled, "It's better for everyone that way."
+
+Quinn shrugged, "I don't have that sort of power, Drakes. I don't want you on my team. You killed the best witness we've ever had in cold blood. You've got a vendetta, and some serious anger issues. I don't want that, you'll get me and my people killed. But they want you. So it's a pardon, or they will come gunning for you, and they will eliminate you."
+
+Suzie shook her head, "In China: Eric Matthews, Huan King, Lam Mao, Kim Sung. In Russia, Alik Semenov, Adrik Ivanov, Andrei Aleksandrov. That's just a few."
+
+Quinn cocked his head, "A few what?"
+
+"Agents in deep cover. I have more. If anyone in those five intelligence communities make a move for me or mine... The respective intelligence communities will be informed. The packet they will recieve will include the deep cover mole's exit strategy." Suzie shook her head, "You tell the boys in the Five Eyes that."
+
+"I'll call it in." Quinn said and shook his head, "You could have been so much more, Drakes."
+
+"I was dead, Quinn." Suzie growled, "I came out of hiding to take the UHF down. Styles was the mysterious hacker, afterall. And now? I've done it. I'm done. Now take your NSA, and get the fuck out of my life."
+
+---
+
