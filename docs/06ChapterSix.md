@@ -1,5 +1,19 @@
 # Chapter Six
 
+~~~
+
+How many must die,
+how many must fall,
+till her will is broken?
+
+Her mentor and master,
+fighting for causes unknown,
+burned out at the last of moments.
+
+- Rising, anon.
+
+~~~
+
 The air was clean, putridly so. 
 
 Her hand rubbed her face, wincing as the harsh lights confirmed her suspicions and she pushed herself upright, looking at the hospital wing. 
