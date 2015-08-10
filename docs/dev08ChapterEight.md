@@ -1,5 +1,19 @@
 # Chapter Eight
 
+~~~
+
+How many must die,
+how many must fall,
+till her will is broken?
+
+Her daughter,
+taken before her first steps,
+hidden from the world by a will unbending.
+
+- Rising, anon.
+
+~~~
+
 "Andrew McIntyre." 
 
 Suzie rolled her eyes, "Bullshit, Styles." 
