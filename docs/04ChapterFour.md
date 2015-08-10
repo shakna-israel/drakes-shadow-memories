@@ -1,5 +1,16 @@
 # Chapter Four
 
+~~~
+
+Among the giants of old,
+amongst the tales and myths,
+her hammer shall strike,
+as one of the Vanir.
+
+- Rising, anon.
+
+~~~
+
 Quinn winced as he saw the elevator open, and Suzie dragged the screaming man in and dropped him to the ground. 
 
 "What happened?" 
