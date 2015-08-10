@@ -126,3 +126,61 @@ The individuals yawned, as if waking up and stood up slowly.
 Twenty four like Nassu.
 
 Her own army.
+
+---
+
+Suzie dropped silently in the night, the drone leaving her behind and moving off back to where it had come.
+
+She landed with a jolt on the helicopter pad of the hospital.
+
+She heard a dozen machine guns cock, and stared at them, smiling grimly.
+
+"Back off, and go back where you came." One of the guards growled angrily, revealing a rich Italian background, "Stay, and die."
+
+Suzie laughed and stood up and shrugged, "Not an option, boys."
+
+Then they all dropped to the ground simultaneously.
+
+She glanced up and saw her Nassu-bots, floating gently in the air, sniper rifles in hand.
+
+Three dropped to the ground behind her, and Suzie smiled grimly, entering the facility.
+
+The first guard barely had a chance to draw his weapon before Suzie's elbow broke his windpipe and he collapsed to the ground gasping for air.
+
+The second wasn't as easy, grabbing a nearby doctor as a hostage.
+
+A Nassu-bot's precise shot ended that tirade.
+
+The doctor became collateral, and so they kept moving.
+
+By the time they'd found the room where Nassu had said Arlia should be located, eighteen guards were dead and two doctors were timid hostages.
+
+Suzie paused as she entered the room.
+
+There she was.
+
+Her daughter, so young.
+
+Barely a year old.
+
+The girl was smiling happily, playing with a loaded gun, sitting in the lap of a guard.
+
+He glared at her, "Make your move, bitch."
+
+Suzie clenched a fist, "Language. Children present."
+
+The guard laughed, "Not for long if you don't back off."
+
+Suzie crouched down, on eye level with her daughter, "Arlia... Do you remember what mummy taught you?"
+
+Arlia smiled girlishly, "Protocol Twenty One?"
+
+Arcs of electricity shot out of the toddler, evicerating the man.
+
+She dropped to the ground, ignoring the gun, and waddled over, grabbing her mother as Suzie swept her up, tears running down her face.
+
+Arlia frowned, "Bad men not so bad, mummy."
+
+Suzie looked at her daughter sadly, "But?"
+
+"Bad men still bad." The toddler growled, and she felt relief flow through her, holding her tight, "That's right, baby girl."
