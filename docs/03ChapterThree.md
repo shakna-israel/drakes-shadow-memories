@@ -1,5 +1,14 @@
 # Chapter Three
 
+~~~
+
+Though none remember her wrath,
+it shall be felt.
+
+- Rising, anon.
+
+~~~
+
 Suzie grinned in her chair as the computer finished logging in, and the shell sat there, a small cursor blinking. 
 
 She had her own office space, within the NSA base of operations, and it overlooked the city. It was beautiful. 
