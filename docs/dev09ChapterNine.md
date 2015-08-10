@@ -68,3 +68,61 @@ As the agents hands reached for her, electricity arced out and blew them both of
 ---
 
 Nassu paused as Suzie emerged, "Are you okay, Suzie?"
+
+She shook her head, "Not really. What have you learned? I trust you infiltrated their crappy little network?"
+
+"I have, and followed the leads they did not deem worthy of follow-up. I have located Arlia." Nassu said, the last sentence taking on a little more animation.
+
+Suzie cocked an eyebrow, "... And? Where the fuck is my daughter?"
+
+Nassu nodded, "Sorry, Suzie. Arlia is being held in a private hospital, heavily fortified. By my estimation, it would take no less than fourteen well-trained operatives to infiltrate and exfiltrate the compound."
+
+Suzie shrugged and stepped over to the car, opening the door, "Then let's go home."
+
+---
+
+Suzie paused as the car stopped outside her home.
+
+Two agents were posted by her doorway, ASIO.
+
+Four others were waiting for her to make her move.
+
+Two in the car by the street, with the lights out, two more either side of the house.
+
+She frowned, "Wait till I've dealt with them, then follow."
+
+She got out of the car and walked towards the doorway, "You got a problem with a phone call, guy?"
+
+The agent stepped forward, one hand going for his holster, "Ma'am, we are here to talk to you."
+
+"Not interested." Suzie growled, and she moved, feeling machinery inside her activating, and she crossed the ground faster than the man could blink, taking his gun from his holster and smashing it into his face, breaking his jaw and nose.
+
+He collapsed backwards onto the ground.
+
+She heard the car door as the two from the building's shadows began to move, and she tossed the gun as hard as she could, shattering one attacker's leg.
+
+The one directly in front of her found his fist caught, and then she squeezed, shattering it.
+
+She headbutted him as he went down in shock, and grabbed the next, yanking his arm aside as he fired a shot directly into a tree.
+
+She twisted his arm at an impossible angle, causing him to drop the gun as she broke his elbow. Then she picked him up and spun, throwing him into one of the agents coming from the street.
+
+She jumped and bounced off of the moving target, landing behind both agents from the car.
+
+A quick electrical jolt to the back of one's neck caused him to go down, the next managed to fire his gun directly into his own foot before she dislocated his jaw with a punch.
+
+She ignored their groans as she waved to Nassu and they entered her home.
+
+She paused beside the chair she had so often fallen asleep in, and smiled grimly, "Upper amount connected settlers case minute saddle ocean amount same art each."
+
+Half the floor shifted, sliding aside into an underground compartment, revealing two dozen individuals, lying in cradles, their eyes closed, their chests unbreathing.
+
+Nassu looked at her carefully, "Are you sure, Suzie?"
+
+She smiled, "Yep... Design suggest sum double dangerous remain article rule paragraph lying enter state settlers lay pen terrible."
+
+The individuals yawned, as if waking up and stood up slowly.
+
+Twenty four like Nassu.
+
+Her own army.
