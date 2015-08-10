@@ -1,5 +1,14 @@
 # Chapter One
 
+~~~
+
+Though the world has brought her low,
+she shall rise again.
+
+- Rising, anon.
+
+~~~
+
 The chef moved her head back as the fire flared in the pan for a moment, and she spun around, looking over at one her juniors as he moved into her place, and she resumed slicing the vegetables at an incredible speed with absolute precision, "What's going on out there?" 
 
 The young cook laughed, "Some dickhead called Angela fat, and said that she better waddle faster if she wanted him to stick around." 
