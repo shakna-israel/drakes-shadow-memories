@@ -1,5 +1,19 @@
 Based 6 months after Heroes and Villains. 
 
+* [Prologue](#prologue)
+* [Chapter One](#chapter-one)
+* [Chapter Two](#chapter-two)
+* [Chapter Three](#chapter-three)
+* [Chapter Four](#chapter-four)
+* [Chapter Five](#chapter-five)
+* [Chapter Six](#chapter-six)
+* [Chapter Seven](#chapter-seven)
+* [Chapter Eight](#chapter-eight)
+* [Chapter Nine](#chapter-nine)
+* [Chapter Ten](#chapter-ten)
+* [Chapter Eleven](#chapter-eleven)
+* [Chapter Twelve](#chapter-twelve)
+
 # Prologue 
 
 A hacker broadcasts a message to the entire world, on every publicly accessible screen. 
